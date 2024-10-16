@@ -2,7 +2,7 @@
 
 Are you an avid Fortnite player looking for a way to boost your game without spending a dime? You’re in luck! In this article, we’ll guide you through everything you need to know about acquiring **free V-Bucks** in Fortnite, including a special offer at the end that you won’t want to miss! 🎁 We're giving away free V-Bucks, Fortnite Gifts and more! Click here to join in! 🎁
 
-## [✅🔴👉Get Ultimate Free V-Bucks Code!](https://mrlyons.github.io/freecode/)
+## [✅🔴👉Get Ultimate Free Code Here!](https://mrlyons.online/giftcards/)
 
 ## What Are V-Bucks?
 
